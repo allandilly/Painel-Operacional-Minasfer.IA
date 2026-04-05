@@ -1,1 +1,0 @@
-# Painel-Operacional-Minasfer.IA
